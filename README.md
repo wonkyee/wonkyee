@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wonkyee
 - 👀 I’m interested in pc games
-- 🌱 I’m currently learning how to play cs/minecraft
+- 🌱 I’m currently learning how to play cs2
 - 💞️ I’m looking to teammates idk
 - 📫 How to reach me {discord @dddshka}
 - 😄 Pronouns: She, her, hers
